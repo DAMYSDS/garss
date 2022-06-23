@@ -19,7 +19,7 @@
 邮件内容区开始>
 <h2>新蒸熟606个小蛋糕🍰(文章) 生产时间 2022-06-23 06:20:52 保质期24小时</h2>
 
-<div style='line-height:3;background-color:#FAF6EA;' ><a href='https://rsshub.app/twitter/user/chenxingkeji' style="line-height:2;text-decoration:none;display:block;color:#584D49;">🌈 ‣ Twitter @🇺🇸CHENXINGKEJI🇺🇸</a></div><div style='line-height:3;' ><a href='https://iui.su/3277/' style="line-height:2;text-decoration:none;display:block;color:#584D49;">🌈 ‣ 安卓Apk应用下载 | 第2篇</a></div><div style='line-height:3;background-color:#FAF6EA;' ><a href='https://iui.su/2679/' style="line-height:2;text-decoration:none;display:block;color:#584D49;">🌈 ‣ 电视/盒子TV/手机直播应用合集 | 第3篇</a></div><div style='line-height:3;' ><a href='https://xclient.info/s/scrutiny.html' style="line-height:2;text-decoration:none;display:block;color:#584D49;">🌈 ‣ Scrutiny 12.3.13 网站SEO检测和优化工具 | 第4篇</a></div>
+<div style='line-height:3;background-color:#FAF6EA;' ><a href='https://rsshub.app/twitter/user/chenxingkeji' style="line-height:2;text-decoration:none;display:block;color:#584D49;">🌈 ‣ Twitter @🇺🇸CHENXINGKEJI🇺🇸</a></div><div style='line-height:3;' ><a href='https://twitter.com/GaleMaxG' style="line-height:2;text-decoration:none;display:block;color:#584D49;">🌈 ‣ Twitter @Max</a></div><div style='line-height:3;background-color:#FAF6EA;' ><a href='https://rsshub.app/twitter/user/Cc92455437' style="line-height:2;text-decoration:none;display:block;color:#584D49;">🌈 ‣ Twitter @小圆圆</a></div>
 
 <邮件内容区结束
 
